@@ -1,0 +1,1 @@
+Copy design source https://demo.hasthemes.com/lezada-preview/lezada/index-collection.html
